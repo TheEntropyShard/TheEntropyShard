@@ -4,4 +4,4 @@ Telegram: @theentropyshard <br>
 Telegram Channel: @shardofficial <br>
 VK: https://vk.com/theentropyshard <br>
 
-I'm a 16 y. o. Java developer
+I'm a 17 y. o. Java developer
